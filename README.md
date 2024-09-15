@@ -1,0 +1,4 @@
+- 👋 Olá! me chamo Osvaldo Teodoro
+- 👀 Sou interessado em matemática aplicada e aplicações financeiras
+- 🌱 Trabalhando em uma empresa de segurança patrimonial atualmente
+- 💞️ Grato pela Verisure BR
